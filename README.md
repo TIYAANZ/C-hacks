@@ -1,5 +1,5 @@
 # C-hacks
-Hi am nidhin
+Hi am anandhu
 #
 Its a social Media gathering Tool And its have whatsapp hacks ,
 Fb hacks , instagram hacks , And information gathering
@@ -30,11 +30,11 @@ Its only for education purposes
 ` ./Chack.sh `
 #
 created by
-MASTER-HACK
+ᴍʀ-ᴠɪʙᴇ
 #
-™𝚰𝚴𝛁𝚫𝐃𝚺𝐑𝐒 𝚯𝐅𝐂 🪁
+™†ї¥ѦѦη ℌѦ¢к 🪁
 #
-https://wa.me//+916235369260 
+https://wa.me//+917356433735
 
 #
 
